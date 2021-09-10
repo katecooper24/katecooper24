@@ -1,4 +1,4 @@
-👋 Hi, I’m @katecooper24
+👋 Hi, I’m Kate Cooper
 1. 👀 I have *no* previous experience in coding
 1. 🌱 I’m taking this class to get experience in coding and exploring a possible interest in college
 1. 💞️ I’m interested in majoring in Finance and/or Real Estate in college
